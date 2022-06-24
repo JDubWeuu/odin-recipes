@@ -1,1 +1,1 @@
-Recipes!
+Recipes for lasagna, burgers, and noodles.
